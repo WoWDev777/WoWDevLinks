@@ -1,4 +1,6 @@
 This file contains all updated links/credits for all the tools, just find the tools that I used in the video that you were watching and get the link for it below.
+
+I also take paid jobs. If you want a specific item I do from Cata-Shadowlands. Just send me a private message on my community discord!
  
 Support me with a few dollars here, I won't charge for my tutorials but if you found them useful and want to help me out you can do so here :) - https://www.patreon.com/Gamemaster777
 

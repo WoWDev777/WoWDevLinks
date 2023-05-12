@@ -13,7 +13,7 @@ Join the WoW Modding Community here - https://discord.gg/T9gucrMMkQ
 Join the Noggit 3378 Community here - https://discord.gg/95u6VfVQSf
 Join the Noggit Red Community here - https://discord.gg/prD7qECFVc
 Join the Open Azeroth Community here - https://discord.gg/NJxAEPFBV9
-Join my Community Discord here - http://lyksoomu.com/1BcuT
+Join my Community Discord here - https://discord.gg/wJVjFguWGA
  
 (USE GOOGLE CHROME)Patch-8(WMOS/M2/Tilesets) - https://drive.google.com/file/d/1kXWDRydvx-hgAmrJ6tnoSWQNXDcA-mKW/view
 Download IDM for Google Chrome to download large files. - https://www.internetdownloadmanager.com/

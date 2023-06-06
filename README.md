@@ -15,6 +15,7 @@ Join the Noggit Red Community here - https://discord.gg/prD7qECFVc
 Join the Open Azeroth Community here - https://discord.gg/NJxAEPFBV9
 Join my Community Discord here - https://discord.gg/wJVjFguWGA
  
+ *NEW* 8.2-10.1 WMOS converted to Wotlk - https://model-changing.net/index.php?app=downloads&module=downloads&controller=view&id=368 - Credits goes to Implave.
 (USE GOOGLE CHROME)Patch-8(WMOS/M2/Tilesets) - https://drive.google.com/file/d/1kXWDRydvx-hgAmrJ6tnoSWQNXDcA-mKW/view
 Download IDM for Google Chrome to download large files. - https://www.internetdownloadmanager.com/
  

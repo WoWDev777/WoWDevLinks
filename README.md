@@ -5,7 +5,7 @@ I also take paid jobs. If you want a specific item I do from Cata-Shadowlands. J
 Support me with a few dollars here, I won't charge for my tutorials but if you found them useful and want to help me out you can do so here :) - https://www.patreon.com/Gamemaster777
 
 TOOLS LINK(Updated June 8-2023)
-3.3.5a WoW Modding Tools: Tools being reuploaded.
+3.3.5a WoW Modding Tools: (https://mega.nz/file/J3s3lYra#totCND1hT9jVU8pza-d9ASOV0Dbu2wU3iL-LKZZyQag)
 
 DISCORD LINKS
 Join the WoW Blender Studio Community here - https://discord.gg/JUVajqTAzt

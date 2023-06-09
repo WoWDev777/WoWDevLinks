@@ -2,7 +2,7 @@ This file contains all updated links/credits for all the tools, just find the to
 
 I also take paid jobs. If you want a specific item I do from Cata-Shadowlands. Just send me a private message on my community discord!
  
-Support me with a few dollars here, I won't charge for my tutorials but if you found them useful and want to help me out you can do so here :) - https://www.patreon.com/Gamemaster777
+I won't charge for my tutorials but if you found them useful and want to help me out you can do so here :) - https://www.patreon.com/Gamemaster777 - This also comes with Discord server benefits and overall Marketplace discounts for the price of 10-15$.
 
 TOOLS LINK(Updated June 8-2023)
 3.3.5a WoW Modding Tools: (https://mega.nz/file/J3s3lYra#totCND1hT9jVU8pza-d9ASOV0Dbu2wU3iL-LKZZyQag)
